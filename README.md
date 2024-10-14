@@ -5,6 +5,9 @@
 - 📫 How to reach me nouriture
 - 😄 Pronouns: nouri/ture
 - ⚡ Fun fact: nouriturenouriturenouriturenouriturenouriturenouriturenouriturenouriturenouriturenouriture
+i got TWO PHONES, one for the plug and one for the dough 
+i love mbappé papi kiki <333
+we be skibiding or what my g yeah lets go pump that ass
 
 <!---
 cyrillignac/cyrillignac is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
